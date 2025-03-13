@@ -1,2 +1,2 @@
-# 👋 Hi, I'm Aimie Monog!  
+# 👋 Hi, I'm Aimie. You can call miee! ✨ 
 
